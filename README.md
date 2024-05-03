@@ -1,1 +1,1 @@
-# SothKR.github.io
+# SouthKR.github.io
